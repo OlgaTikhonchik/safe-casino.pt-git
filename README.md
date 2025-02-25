@@ -1,0 +1,1 @@
+# safe-casino.pt-git
